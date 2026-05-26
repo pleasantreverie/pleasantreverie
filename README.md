@@ -5,9 +5,11 @@
 ![](https://komarev.com/ghpvc/?username=pleasantreverie&amp;color=orange) 
 
 
-  ⠀⠀⠀⠀  this is a wip... come back later if youd like ! 
+  ⠀⠀⠀⠀ 　　𖤓　⁺　　"rev"erie　　,　　swad 　　,　　etc.
 
+　　　　𓈒　ask　⋮　it　⋮　he　⋮　she　　.　
 
+　　　　i block freely + basic dni 　　‿　　(prnspg)[https://en.pronouns.page/@reverent]　꒱　. ˚
 
 
 
