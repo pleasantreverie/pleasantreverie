@@ -3,7 +3,7 @@
 
 ![](https://komarev.com/ghpvc/?username=pleasantreverie&amp;color=orange)
 
-this is a wip... come back later if youd like ! <img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/653465cb-366a-4a09-8246-dfc7cd31e43c" />
+this is a wip... come back later if youd like ! 
 
 
 
