@@ -5,11 +5,11 @@
 
  　
 
-  ⠀⠀⠀⠀ 　　　　　𖤓　⁺　　"rev"erie　　,　　swad 　　,　　etc.
+<p align="center">𖤓　⁺　　"rev"erie　　,　　swad 　　,　　etc. </a>
 
-　　　　　　𓈒　ask　⋮　it　⋮　he　⋮　she　　.　
+<p align="center">𓈒　ask　⋮　it　⋮　he　⋮　she　　.　 </a>
 
-　　　　　　　　　　　[atabook](https://pleasantreverie.atabook.org/?page=1) 　　‿　　[prnspg](https://en.pronouns.page/@reverent)　꒱　. ˚
+<p align="center">[atabook](https://pleasantreverie.atabook.org/?page=1) 　　‿　　[prnspg](https://en.pronouns.page/@reverent)　꒱　. ˚ </a>
 
 
  　
