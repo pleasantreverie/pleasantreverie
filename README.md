@@ -9,7 +9,7 @@
 
 　　　　𓈒　ask　⋮　it　⋮　he　⋮　she　　.　
 
-　　　　i block freely + basic dni 　　‿　　[prnspg](https://en.pronouns.page/@reverent)　꒱　. ˚
+　　　　　　i block freely + basic dni 　　‿　　[prnspg](https://en.pronouns.page/@reverent)　꒱　. ˚
 
 
 
