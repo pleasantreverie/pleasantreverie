@@ -2,11 +2,11 @@
 
 
 
-![](https://komarev.com/ghpvc/?username=pleasantreverie&amp;color=orange) <img width="50" height="45" alt="image" src="https://github.com/user-attachments/assets/82741719-5058-40ce-8ae4-d53b2be4853f" />
+![](https://komarev.com/ghpvc/?username=pleasantreverie&amp;color=orange) 
 
 
 
-this is a wip... come back later if youd like ! 
+this is a wip... come back later if youd like ! <img width="50" height="45" alt="image" src="https://github.com/user-attachments/assets/82741719-5058-40ce-8ae4-d53b2be4853f" />
 
 <img width="198" height="112" alt="image" src="https://github.com/user-attachments/assets/cbe4db0e-80d5-4814-bc6f-bcd61ba0e6ea" /> <img width="198" height="112" alt="image" src="https://github.com/user-attachments/assets/53fb00dd-ef0d-4977-997f-9de44ae4b13c" /> <img width="198" height="112" alt="image" src="https://github.com/user-attachments/assets/705d2caa-cdb3-43d0-bb5d-40653bb0e6cc" />
 
