@@ -5,7 +5,7 @@
 
  　
 
-  ⠀⠀⠀⠀ 　　𖤓　⁺　　"rev"erie　　,　　swad 　　,　　etc.
+  ⠀⠀⠀⠀ 　　　𖤓　⁺　　"rev"erie　　,　　swad 　　,　　etc.
 
 　　　　𓈒　ask　⋮　it　⋮　he　⋮　she　　.　
 
