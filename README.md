@@ -9,7 +9,7 @@
 
 <p align="center">𓈒　ask　⋮　it　⋮　he　⋮　she　　.　 </a>
 
- <div align="center"> [atabook](https://pleasantreverie.atabook.org/?page=1) 　　‿　　[prnspg](https://en.pronouns.page/@reverent)　꒱　. ˚ </div>
+　　　　　　　　　　[atabook](https://pleasantreverie.atabook.org/?page=1) 　　‿　　[prnspg](https://en.pronouns.page/@reverent)　꒱　. ˚ 
 
 
  　
