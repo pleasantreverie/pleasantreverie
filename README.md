@@ -1,6 +1,6 @@
 <p align="center"> <img width="640" height="91" alt="image" src="https://github.com/user-attachments/assets/7ab12546-6fb7-4be3-8814-3b31e17bd259" /> </a>
 
-![](https://komarev.com/ghpvc/?username=pleasantreverie&amp;color=orange) 
+　　　　　　　![](https://komarev.com/ghpvc/?username=pleasantreverie&amp;color=orange) 
 
 
  　
@@ -9,7 +9,7 @@
 
 <p align="center">𓈒　ask　⋮　it　⋮　he　⋮　she　　.　 </a>
 
-<p align="center">[atabook](https://pleasantreverie.atabook.org/?page=1) 　　‿　　[prnspg](https://en.pronouns.page/@reverent)　꒱　. ˚ </a>
+<p align="center">[atabook](https://pleasantreverie.atabook.org/?page=1) 　　‿　　[prnspg](https://en.pronouns.page/@reverent)　꒱　. ˚ </p>
 
 
  　
