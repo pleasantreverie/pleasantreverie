@@ -6,7 +6,7 @@
  　
 
 <p align="center">
- 𖤓　⁺　　"rev"erie　　,　　swad 　　,　　etc. 
+ 𖤓　⁺　　"rev"erie　　,　　swad 　　,　　etc. </a>
  
 𓈒　ask　⋮　it　⋮　he　⋮　she　　.　 
 
