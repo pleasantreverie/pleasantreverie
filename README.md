@@ -5,11 +5,11 @@
 
  　
 
-  ⠀⠀⠀⠀ 　　　𖤓　⁺　　"rev"erie　　,　　swad 　　,　　etc.
+  ⠀⠀⠀⠀ 　　　　　𖤓　⁺　　"rev"erie　　,　　swad 　　,　　etc.
 
-　　　　𓈒　ask　⋮　it　⋮　he　⋮　she　　.　
+　　　　　　𓈒　ask　⋮　it　⋮　he　⋮　she　　.　
 
-　　　　　　　　　[atabook](https://pleasantreverie.atabook.org/?page=1) 　　‿　　[prnspg](https://en.pronouns.page/@reverent)　꒱　. ˚
+　　　　　　　　　　　[atabook](https://pleasantreverie.atabook.org/?page=1) 　　‿　　[prnspg](https://en.pronouns.page/@reverent)　꒱　. ˚
 
 
  　
