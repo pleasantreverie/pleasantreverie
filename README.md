@@ -2,7 +2,7 @@
 
 
 
-![](https://komarev.com/ghpvc/?username=pleasantreverie&amp;color=orange) <img width="300" height="239" alt="image" src="https://github.com/user-attachments/assets/ec9aed1f-f608-4acf-b4ea-c51be6e7fc6e" />
+![](https://komarev.com/ghpvc/?username=pleasantreverie&amp;color=orange) <img width="100" height="89" alt="image" src="https://github.com/user-attachments/assets/ec9aed1f-f608-4acf-b4ea-c51be6e7fc6e" />
 
 
 this is a wip... come back later if youd like ! 
