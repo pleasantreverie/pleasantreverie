@@ -26,5 +26,5 @@
 <p align="center">
   swapdream dream copinglink.. copinglink definition & info
   <a href="https://otherkin.fandom.com/wiki/Copinglink">here</a><br>
-  i block freely + basic dni
+  i block freely
 </p>
