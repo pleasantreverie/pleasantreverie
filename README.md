@@ -31,5 +31,5 @@
 
 <p align="center">
 <img width="80" height="69" alt="Screenshot 2026-07-29 154552" src="https://github.com/user-attachments/assets/f2a19377-ed1c-4677-9862-5dfdeecc64c4" /> <br>
-    dumb little doodle by @fuminoomi lol (SORRYI JUST THINK IT'S RLLY FUNNY)
+    dumb little doodle by @fuminoomi lol
 </p>
