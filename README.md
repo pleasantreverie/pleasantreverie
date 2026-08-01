@@ -26,5 +26,5 @@
 <p align="center">
   swapdream dream copinglink.. copinglink definition & info
   <a href="https://otherkin.fandom.com/wiki/Copinglink">here</a><br>
-  i block freely, ships w/ sd dni.. unless it's grillby.... i selfship with him heavy..
+  i block freely, ships w/ sd dni.. unless it's grillby.... i selfship with him heavily c:
 </p>
