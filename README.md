@@ -1,3 +1,7 @@
+<p align="center">
+  accs im on : @pt-hall-of-media ⟢ @pt-walk-of-fame ⟢ @ponytownyumeshippers
+</p>
+
 <!-- top banner -->
 <p align="center">
   <img width="640" height="91" alt="image" src="https://github.com/user-attachments/assets/7ab12546-6fb7-4be3-8814-3b31e17bd259" />
@@ -26,5 +30,6 @@
 <p align="center">
   swapdream dream copinglink.. copinglink definition & info
   <a href="https://otherkin.fandom.com/wiki/Copinglink">here</a><br>
-  i block freely, ships w/ sd dni.. unless it's grillby.... i selfship with him heavily c:
+  i block freely, ships w/ sd dni.. unless it's grillby.... i selfship with him heavily c: <br>
+
 </p>
