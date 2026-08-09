@@ -1,5 +1,5 @@
 <p align="center">
-  accs im on : @pt-hall-of-media ⟢ @pt-walk-of-fame ⟢ @ponytownyumeshippers
+  accs im on : @pt-hall-of-media ⟢ @pt-walk-of-fame ⟢ @ponytownyumeshippers ⟢ @fans-town
 </p>
 
 <!-- top banner -->
