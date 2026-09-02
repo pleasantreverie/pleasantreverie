@@ -15,7 +15,7 @@
 <!-- text + links -->
 <p align="center">
   𖤓　⁺　　"rev"erie　　,　　swad 　　,　　etc. <br><br>
-  𓈒　ask　⋮　it　⋮　he　⋮　she　　.　 <br><br>
+  𓈒　ask　⋮　it　⋮　hymn　　.　 <br><br>
   <a href="https://pleasantreverie.atabook.org/?page=1">atabook</a> 　　‿　　
   <a href="https://pleasantreverie.straw.page">strawpg</a>　꒱　. ˚
 </p>
